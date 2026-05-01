@@ -1,0 +1,1 @@
+https://wayzclickerz.neocities.org/
